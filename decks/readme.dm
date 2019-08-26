@@ -1,1 +1,1 @@
-descks
+decks
